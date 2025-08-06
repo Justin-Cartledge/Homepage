@@ -1,6 +1,6 @@
 ![Justin](Justin Black.jpeg)
 
-![Banner](github-header-image (4).png)
+
 
 # HOMEPAGE
 
